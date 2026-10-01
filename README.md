@@ -3,18 +3,18 @@
 
 ### PMP® | Public Finance Professional | Project Manager | Business Analytics & Data Science
 
-I am Titilola Ojutiku, an experienced project management and public finance professional with a growing specialization in business analytics, data science, and data-driven decision-making.
+I am Titilola Ojutiku, an experienced project manager and public finance professional with a growing specialization in business analytics, data science, and data-driven decision-making.
 
-Additionally, I am a Project Management Professional (PMP®)** and currently working on GFOA Certified Public Finance Officer (CPFO) program, combining professional expertise in project leadership, municipal finance, financial management, and organizational decision-making with advanced analytical and technical skills.
+Additionally, I am a certified Project Management Professional (PMP®)** and a GFOA Certified Public Finance Officer (CPFO), combining professional expertise in project leadership, public finance, financial management, and organizational decision-making with advanced analytical and technical skills.
 
-Currently, I work in municipal finance in Connecticut while also m pursuing an **M.S. in Business Analytics and Project Management** at the University of Connecticut UCONN, where I am expanding my expertise in predictive modeling, optimization, machine learning, forecasting, and applied analytics.
+Currently, I work in municipal finance in Connecticut while also pursuing an **M.S. in Business Analytics and Project Management** at the University of Connecticut UCONN, where I am expanding my expertise in predictive modeling, optimization, machine learning, forecasting, and applied analytics.
 
 ## 🎓 Professional Credentials
 
 **Project Management Professional (PMP®) — Project Management Institute (PMI)**
 Experienced in applying structured project management practices to planning, execution, stakeholder management, risk management, resource coordination, and successful project delivery.
 
-**Certified Public Finance Officer (CPFO) — Government Finance Officers Association (GFOA)- In progress**
+**Certified Public Finance Officer (CPFO) — Government Finance Officers Association (GFOA)**
 Professional knowledge across the major disciplines of government finance, including:
 
 * Accounting and Financial Reporting
